@@ -1,1 +1,1 @@
-the repository belons to me
+the repository belongs to me
